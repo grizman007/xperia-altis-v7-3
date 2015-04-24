@@ -1,0 +1,1 @@
+xperia-altis-v7-3
